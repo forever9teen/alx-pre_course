@@ -1,1 +1,1 @@
-3. Collaboration is the base of a company
+6. Never push too much
